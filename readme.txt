@@ -1,1 +1,1 @@
-Here is Kim. Hi
+Here is Kim.
